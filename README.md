@@ -1,0 +1,1 @@
+# UAS-Kecerdasan-Buatan_Juniar-Akhsan
